@@ -32,7 +32,7 @@ It’s a win-win opportunity for everyone involved!
 ## ✅ Simple Steps to Join and Earn
 
 1. Click this link:  
-   👉 [https://www.tradingview.com/pricing/?share_your_love=erinurshofa](https://www.tradingview.com/pricing/?share_your_love=erinurshofa)
+   👉 **[Sign Up](https://www.tradingview.com/pricing/?share_your_love=erinurshofa)
 2. Choose a paid plan that fits your needs.
 3. Enjoy premium features + referral rewards.
 
